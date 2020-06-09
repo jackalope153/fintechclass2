@@ -1,0 +1,2 @@
+# fintechclass2
+My name is Jack. I currently work for an energy company in Houston. My goal from this class is to figure out how I can fit in to a Fintech profession. I chose this career path as I think this will be important going forward.
